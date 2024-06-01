@@ -5,3 +5,4 @@ Kritiana Loken jest foka jest bi bo ma w DNA zapisanego męża a ją rozdzielił
 Pasuje żart prawda. 
 Kristiany siostry to komando foki. Niemcy chcą ślubów i życia bez sensu po germańsku. 
 Niemcy chcą tylko chcą geszeftu wymiany po izraelsku lub Skandynawsku wyimany kobiet do uzupłenienia ploretariatu pracy. Po to są chamem jak za ewy. Niemcy to cham. Chcą mi dać mi inną młądsza inna bo chcą mi zrobić na złość. Niemcy są z jaskini. Ruchają co chcą i wysyłają do pracy do fabryk. Ja mam parę nie chce nic od geszeftu z gefenstein. 
+Te wymiany i te chamy to Niemcy i Skandynawowie i ci ze stadionu od Lotto czy rowery to samo i 112 i gwiazdy komandosi. Elon nic nie da bo kradnie i porzycza do łórzka. Mi jako Bogu wszechświata to się nie podoba. Ewa Ada Wong miałą Adama żyd jej zabrał Niemiec cynik i cham biznesmen 112.   

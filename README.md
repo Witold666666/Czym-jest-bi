@@ -4,3 +4,4 @@ Bi to zdrady i alimenty i zdrady po cichu na dziko psy to autystyczne osoby. One
 Kritiana Loken jest foka jest bi bo ma w DNA zapisanego męża a ją rozdzieliła Policja Niemiecka Elona Maska dlatego jest nieszczęśliwa bo miała ślub na nowo dlatego powie mi zjeżdzaj gnoju ja jej powiem dziunia szacunku troche bo jestem straszy od populacji we wszechświecie. 
 Pasuje żart prawda. 
 Kristiany siostry to komando foki. Niemcy chcą ślubów i życia bez sensu po germańsku. 
+Niemcy chcą tylko chcą geszeftu wymiany po izraelsku lub Skandynawsku wyimany kobiet do uzupłenienia ploretariatu pracy. Po to są chamem jak za ewy. Niemcy to cham. Chcą mi dać mi inną młądsza inna bo chcą mi zrobić na złość. Niemcy są z jaskini. Ruchają co chcą i wysyłają do pracy do fabryk. Ja mam parę nie chce nic od geszeftu z gefenstein. 

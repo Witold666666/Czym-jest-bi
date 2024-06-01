@@ -7,3 +7,4 @@ Kristiany siostry to komando foki. Niemcy chcą ślubów i życia bez sensu po g
 Niemcy chcą tylko chcą geszeftu wymiany po izraelsku lub Skandynawsku wyimany kobiet do uzupłenienia ploretariatu pracy. Po to są chamem jak za ewy. Niemcy to cham. Chcą mi dać mi inną młądsza inna bo chcą mi zrobić na złość. Niemcy są z jaskini. Ruchają co chcą i wysyłają do pracy do fabryk. Ja mam parę nie chce nic od geszeftu z gefenstein. 
 Te wymiany i te chamy to Niemcy i Skandynawowie i ci ze stadionu od Lotto czy rowery to samo i 112 i gwiazdy komandosi. Elon nic nie da bo kradnie i porzycza do łórzka. Mi jako Bogu wszechświata to się nie podoba. Ewa Ada Wong miałą Adama żyd jej zabrał Niemiec cynik i cham biznesmen 112.   
 Elon to mnożnik potęg 5 zł. 
+Niemcy nie chcą odzyskiwać danych bi z poprzednich stworzeń wszechśiata ludzi bo chcą dać na nowo nową osobę a tą starą uśmiercić. Mają teraz do sprzedania z lotto i zdrapek dzieci ze stadionów i dzieci indygo z dalicji. 
